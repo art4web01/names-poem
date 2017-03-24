@@ -17,8 +17,8 @@ If I’m Droppin’ one. I’m a kneeling Elf</br>
 Nature thyme is good to well me </br>
 I fly what’s mine so it is she who bakes like a pro so no</br>
 </br>
-Blew the slow candles. Took my cake. Parcel went in-take</br>
-See its eye roll. Molly with more moles</br>
+Blew the slow candles. Took my cake. Parcel went south</br>
+See its eye roll. Molly got more moles</br>
 </br>
 Left righting I write wee wheel little</br>
 With Dawn can’t unwrap one gum to spell a command</br>
